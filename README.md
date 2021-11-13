@@ -1,2 +1,2 @@
 # Fun
-Hi there this just for fun, hae a good day
+Hi there, this is just for fun, have a good day
